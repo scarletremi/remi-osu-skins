@@ -21,4 +21,10 @@
 # [another dt skin](https://drive.google.com/file/d/10KUSfO1Ut69HmMIG6HeYM8CazkNChZ13/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/19521342/f8a1)
 
+# [youtube](https://www.youtube.com/@venvenichan)
 
+# [twitter](https://x.com/venveni__)
+
+# [bsky](https://bsky.app/profile/scarletremi.bsky.social)
+
+# [osu profile](https://osu.ppy.sh/users/6006727)
